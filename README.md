@@ -1,7 +1,7 @@
 <div align="center">
 
 # Enjoy this i reuploaded original check black.tar.gz as its the original file from a few months ago 
-# Huge shoutout to the Chinese tools like this should be available for everyone to look into and u still need to pay for a ai subscription to use it
+# Huge shoutout to the Chinese people for making tools like this they should be available for everyone to look into and u still need to pay for a ai subscription to use it
 
  ARTEX
 
